@@ -1,1 +1,0 @@
-yanu gannteng titidd
