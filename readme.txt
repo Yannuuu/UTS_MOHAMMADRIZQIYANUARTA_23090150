@@ -1,1 +1,1 @@
-yanu gannteng
+yanu gannteng titidd
